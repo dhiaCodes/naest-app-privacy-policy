@@ -1,1 +1,0 @@
-# naest-app-privacy-policy
